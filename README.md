@@ -25,7 +25,7 @@ Usar el código promocional **[DEALA](https://smartthriftfinder.com/quotex-kpseo
 3. Durante el proceso de depósito, ingresa el código **[DEALA](https://smartthriftfinder.com/quotex-kpseo)**.
 4. Deposita al menos **$50**.
 5. Completa el depósito y los fondos del bono se acreditarán en tu cuenta.
-
+![Quotex-DEPOSIT20](https://hackmd.io/_uploads/BJuT2rvkel.png)
 ## ¿Por qué deberías usar el código promocional DEALA en Quotex?
 
 **Quotex** ofrece a los traders varias ventajas que hacen que usar el código promocional **[DEALA](https://smartthriftfinder.com/quotex-kpseo)** sea beneficioso:
