@@ -75,5 +75,5 @@ Usar el código promocional **[DEALA](https://smartthriftfinder.com/quotex-kpseo
 
 **Es posible que te gusten nuestros otros artículos**.
   - [Bono de Depósito Binomo](https://github.com/Codigos-promocionales-verificados/Bono-de-Dep-sito-Binomo-30-)
-  - [Código Promocional DFD8 de IQ Option](https://github.com/Codigos-promocionales-verificados/IQ-Option)
+  - [Código de Promoción de Expert Option](https://github.com/Codigos-promocionales-verificados/expert-option)
   - [Código Promocional de Quotex](https://github.com/Codigos-promocionales-verificados/Codigo-Promocional-de-Quotex)
